@@ -1,3 +1,0 @@
-# TSI
-
-Lavori in corso...
